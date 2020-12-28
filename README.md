@@ -15,6 +15,13 @@ Espero que todos vosotros lo entendais habeis sido una parte muy importate para 
 
 Esto es una inocentada, no lo destapeis si lo leeis.
 
+Por eso quiero deciros que muchas gracias.
+
+De verdad muchisimas gracias y quien sabe si algún día haré un bot nuevo como side project.
+
+Os quiero pilaricos y espero que os vaya muy bien en la vida.
+
+Un saludo y hasta siempre
 
 
 
