@@ -24,6 +24,7 @@ Os quiero pilaricos y espero que os vaya muy bien en la vida.
 Un saludo y hasta siempre
 
 
+![alt text](https://github.com/Karucida/PilaricaBotOpenSource/blob/main/pilara.png?raw=true)
 
 
 
